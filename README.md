@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... morar no citio
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on em um clube de tiro ...
-- 📫 How to reach me tendo 25 anos
+- 📫 How to reach la? me tendo 25 anos
 
 <!---
 Gabrielgamer2/Gabriel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
